@@ -1,1 +1,1 @@
-IF YOU GUYS ENJOY THIS JUST ENJOY xD
+If you guys want special code, come on discord and we'll help you.
